@@ -1,7 +1,7 @@
-- 👋 Hi, je suis 𝚴𝚵𝐋𝐒𝚯𝚴 𝚸𝚮𝚰𝐊𝚵𝚴𝐃𝐘 𝐂𝚫𝚪𝐋 𝚰𝚳𝚵𝐋𝚫𝚰𝚴
+⁷- 👋 Hi, je suis 𝚴𝚵𝐋𝐒𝚯𝚴 𝚸𝚮𝚰𝐊𝚵𝚴𝐃𝐘 𝐂𝚫𝚪𝐋 𝚰𝚳𝚵𝐋𝚫𝚰𝚴
 - 👀 le créateur de ce bot
 - je suis prêt à collaborer avec toi
-- 💞️ I’m looking to collaborate free fire
+- 💞️ I’m looking to collaborate for you
 - 📫 les menus bug 
 - 😄 enjoy
 -  stickers
